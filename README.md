@@ -1,0 +1,1 @@
+I've spent a decade writing software for advertising, e-commerce and multiple startups. In the age of AI, I am still very excited where will the road take us. You can read my journey at romanidis.github.io
